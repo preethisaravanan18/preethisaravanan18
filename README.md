@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @preethisaravanan18
+- 👋 Hi, I’m Preethi Saravanan
   
 
 <!---
